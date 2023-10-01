@@ -2,4 +2,5 @@
 
 Bandeira
 
-mais códigos como este acesse [htts://z7io.com]
+
+codigos como este? https://z7io.com/
